@@ -12,3 +12,4 @@
  2. Nizhny Novgorod College of Economics and law - computer and information systems software faculty 2000 - 2004
 ### English level:
  A2
+ 
